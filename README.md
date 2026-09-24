@@ -1,4 +1,4 @@
-## Hi there, I'm Cebolenkosi Dlamini 👋
+## Hi there, I'm Cebolenkosi 👋
 
 <!-- 🔗 Update these links with your own social media and contact information -->
 <p align="center">
